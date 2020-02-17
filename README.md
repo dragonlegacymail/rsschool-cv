@@ -1,1 +1,1 @@
-# rsschool-cv
+https://dragonlegacymail.github.io/rsschool-cv/
